@@ -1,1 +1,1 @@
-Not much here yet, but I do enjoy coding
+Personal projects and junior company work here!
